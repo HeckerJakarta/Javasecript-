@@ -22,4 +22,4 @@ Atas nama-I....N...
 Untuk peneriamaan kirim email yang akan dikirim scerip ke alamat email tujuan..
 Dengan mngirimkan email. Setruk pembuktian pembelian ke ADM no wasthaap dibawah ini
 
-ADM-082315297480
+ADM-082240201841
